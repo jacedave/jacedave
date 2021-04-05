@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jacedave
+- 👋 Hi, I’m @jacedave My name is Jason
 - 👀 I’m interested in ... Lots of stuff
 - 🌱 I’m currently learning ... Android and other stuff. I am a Senior at Dixie State Universiry
 - 💞️ I’m looking to collaborate on ... Not much right now, I am busy
